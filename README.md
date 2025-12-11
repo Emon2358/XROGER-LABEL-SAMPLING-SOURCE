@@ -72,7 +72,7 @@ https://www.youtube.com/watch?v=mdBmxcQT1cw
 
 Hub Master–	法子のTwinkle Nitemare
 
-club db 法子のtwinkle nightmerの最初の部分
+club db 法子のtwinkle dreamerの最初の部分
 
 https://www.youtube.com/watch?v=6TIKk7k--w0
 

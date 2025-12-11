@@ -110,6 +110,13 @@ Coldcut - Stop This Crazy Thing (Album Ver.) Edited
 
 https://www.youtube.com/watch?v=mdBmxcQT1cw
 
+Hub Master–	勝手に桃艦長
+
+機動戦艦ナデシコ The blank of 3 years
+ED曲「星座の海を行こう」
+
+https://www.youtube.com/watch?v=JpZAXfaqHyk
+
 ふしぎ八卦
 
 Hub Master–	The Animal
